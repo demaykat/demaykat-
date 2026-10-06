@@ -1,1 +1,1 @@
-# demaykat-
+I am a sophomore at Oregon State University and am interested in a major in data science and biology. I am from Olympia Washington. I've been interested in data science because I'm good at mathematics and am interesting in researching and studying data. I am hoping with a data science degree that I can work in drug discovery/pharmaceuticals to help the medicine field. 
